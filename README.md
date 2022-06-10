@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @karolzinha00
+- 👀 I’m interested in  programar novas linguagens 
+- 🌱 I’m currently learning programar  recentemente linguagens de Scratch
